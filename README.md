@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @5387991187
 - 👀 I’m interested in ...Basketball and nursing and building 
 - 🌱 I’m currently learning ... Math eniglish langauage arts and science social studies
-- 💞️ I’m looking to collaborate on ... on becoming a nurse and donter when i turn 24 so i can get a house and pay my on bills 
+- 💞️ I’m looking to collaborate on ... on becoming a nurse and docter when i turn 24 so i can get a house and pay my on bills 
 - 📫 How to reach me ... gmail 
 - 😄 Pronouns: ... Aalaiyah kimberly nicole davis
 - ⚡ Fun fact: ...  i a reall looking forward on becoming a nurse and having fun at collage paying attention people are 
